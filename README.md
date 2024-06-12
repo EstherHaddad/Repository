@@ -10,4 +10,5 @@ Estou me desenvolvendo na linguagem JavaScript
 
 Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-![https://pin.it/1wR60AftW](link)
+Você pode entrar em contato comigo 📲📫
+esther.haddad.gomes@gmail.com
