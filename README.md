@@ -14,3 +14,5 @@ Você pode entrar em contato comigo 📲📫
 
 esther.haddad.gomes@gmail.com
 
+![](https://tenor.com/mv7kXAdtoWf.gif)
+
